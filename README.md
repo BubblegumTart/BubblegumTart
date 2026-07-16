@@ -5,11 +5,6 @@ HIII >⩊<.ᐟ My name is Maddy/Mads
 
 Im 15 years old!
 ----------------                                                                                     
-
-
-<img width="736" height="736" alt="image"  src="https://github.com/user-attachments/assets/71366719-6481-4fcf-aa0d-7283c8febc80" />
-
-
 My prns are he/she/they 
 
 · · ─ ·ʚɞ· ─ · ·
@@ -46,3 +41,5 @@ src="https://img.shields.io/github/followers/BubblegumTart?logo=github&style=for
 <a href="http://www.github.com/BubblegumTart"><img src="https://github-readme-stats.vercel.app/api?username=BubblegumTart&show_icons=true&hide=&count_private=true&title_color=0891b2&text_color=ffffff&icon_color=0891b2&bg_color=1c1917&hide_border=true&show_icons=true" alt="BubblegumTart's GitHub stats" /></a>
 
 <a href="http://www.github.com/BubblegumTart"><img src="https://github-readme-streak-stats.herokuapp.com/?user=BubblegumTart&stroke=ffffff&background=1c1917&ring=0891b2&fire=0891b2&currStreakNum=ffffff&currStreakLabel=0891b2&sideNums=ffffff&sideLabels=ffffff&dates=ffffff&hide_border=true" /></a>
+
+<img width="689" height="362" alt="9090ac7419a8317db12af590a24198ba-removebg-preview" src="https://github.com/user-attachments/assets/7a09aa6e-5865-43c1-8850-68dba9a7a81d" />
