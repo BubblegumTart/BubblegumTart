@@ -9,7 +9,7 @@ My prns are he/she/they
 
 · · ─ ·ʚɞ· ─ · ·
 
-I don't have a lot of friends so don't be afraid to talk to me!
+I genuinly have no friends lol
 
 . ˖  ꒰𑁬 ♡ ໒꒱  ˖ .
 
