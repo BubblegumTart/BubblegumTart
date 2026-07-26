@@ -25,7 +25,6 @@ I'm in a lot of fandoms tbh so just ask!
 * 🌍  I'm based in USA
 * 💬  My birthday is May 6!
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vhsnxlbq2oi4ubcmwz2eqzb6ey&cover_image=true&theme=default&show_offline=false&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&bar_color=f5b8cd)](https://github.com/kittinan/spotify-github-profile) 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vhsnxlbq2oi4ubcmwz2eqzb6ey&cover_image=true&theme=spotify-embed&show_offline=false&background_color=ffffff&interchange=true&profanity=false&hide_remaster=false&mode=light&bar_color=f5b8cd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
 <img width="689" height="362" alt="9090ac7419a8317db12af590a24198ba-removebg-preview" src="https://github.com/user-attachments/assets/7a09aa6e-5865-43c1-8850-68dba9a7a81d" />
