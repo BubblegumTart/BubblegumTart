@@ -9,7 +9,7 @@ My prns are he/she/they
 
 · · ─ ·ʚɞ· ─ · ·
 
-I genuinly have no friends lol
+I love my lil friend group
 
 . ˖  ꒰𑁬 ♡ ໒꒱  ˖ .
 
